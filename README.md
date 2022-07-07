@@ -1,4 +1,2 @@
-# Checkpoint1
-probando para rendir intro
+Aylen :)
 
-Gustavo
